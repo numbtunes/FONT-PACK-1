@@ -18,3 +18,8 @@
                     
                                  ┍————- /ᐠ｡ꞈ｡ᐟ\ ————┑
                     
+
+DISCLAIMER ABOUT GRAPHIC DISPLAY: DROP SHADOW IN THE PREVIEW (PURPLE ASS PICTURE) IS NOT INCLUDED, THE FONTS ARE NORMAL FLAT TTFS NO 3D OR EXTRUSION!
+
+
+![tenor](https://user-images.githubusercontent.com/66127562/111244716-d7367580-85d9-11eb-93de-c94436d6527c.gif)
