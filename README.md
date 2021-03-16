@@ -1,6 +1,5 @@
  WELCOME TO MY FONT PACK!!
 ---------------------------
-- all fonts are royalty free and can be used in paid work, (attribution not required but is appreciated)
 
 ┊     ┊     ┊       ┊   ┊   ˚✩ ⋆｡˚ ✩ °   ┊ ˚ ✩.    ┊     ┊
 ┊     ┊     ┊       ┊ .✫ °                        ┊        ⊹ ┊     ┊
@@ -23,3 +22,15 @@ DISCLAIMER ABOUT GRAPHIC DISPLAY: DROP SHADOW IN THE PREVIEW (PURPLE ASS PICTURE
 
 
 ![tenor](https://user-images.githubusercontent.com/66127562/111244716-d7367580-85d9-11eb-93de-c94436d6527c.gif)
+
+
+
+
+
+
+
+
+
+
+
+legal: all fonts are royalty free and can be used in paid work, (attribution not required but is appreciated)
